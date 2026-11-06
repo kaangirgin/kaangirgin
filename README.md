@@ -6,7 +6,7 @@
 
 İşletmeler için web uygulamaları, e-ticaret çözümleri ve arama motorlarında görünürlük sağlayan dijital deneyimler geliştiriyorum.
 
-[Portföy](https://kaangirgin.com/) · [LinkedIn](https://www.linkedin.com/in/kaangirgin) · [X]([https://www.linkedin.com/in/kaangirgin](https://x.com/kaangirgin)) · [İletişim](https://kaangirgin.com/iletisim)
+[Portföy](https://kaangirgin.com/) · [LinkedIn](https://www.linkedin.com/in/kaangirgin) · [X](https://x.com/kaangirgin) · [İletişim](https://kaangirgin.com/iletisim)
 
 </div>
 
